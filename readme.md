@@ -1,1 +1,1 @@
-Essse é meu repositório kke bosta :D
+Essse é meu repositório :D
